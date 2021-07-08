@@ -1,1 +1,0 @@
-# solarsystemAR-2cqxcr
